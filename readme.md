@@ -1,1 +1,1 @@
-hola gente
+hola gente somos el grupo sinima
